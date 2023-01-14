@@ -1,3 +1,3 @@
 # COME ON
 
-Let's do it
+Let's do it!
